@@ -43,6 +43,8 @@ partner has sexual desire as gemini=kaam trikon
 money = communication, marketing. gadi ka skill. venus in gemini=venus in 3rd=7th or. venus in gemini can be driver as driving can be hathon ka skill
 chatting, facebook, travel krte samay number exchange partner ke sath.  partner can look young. venus in gemini=singing skill. 
 asthetic. partner can have affairs. 
+For female: Venus in which raashi or which graha in libra.
+Colourful: love for colour
 
 ## Jupiter in gemini:
 
