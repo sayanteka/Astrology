@@ -4,6 +4,10 @@ Talkative, Communication, Duality, Witty(Humorous), Curious, Intelligent, Social
 
 Tv anchoring, Teacher, Youtuber, Short travels, Skillful, Skill related to hand.
 
+If mars sits in taurus and gemini empty: relationship for female kharab. For male see venus.
+venus or mars ke next house kaam trikon hai and empty then problem in marriage.
+
+
 ## Mars in Gemini
 
 1. This can be interpreted as mars+mercury combination, Kaalpurush house lord going in gemini sign, Mars in 3rd house, Karakatwas of mars.
