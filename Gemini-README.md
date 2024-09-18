@@ -7,6 +7,16 @@ Tv anchoring, Teacher, Youtuber, Short travels, Skillful, Skill related to hand.
 If mars sits in taurus and gemini empty: relationship for female kharab. For male see venus.
 venus or mars ke next house kaam trikon hai and empty then problem in marriage.
 
+Bhaav means kaha hga manifest.
+
+Mercury=mama ka karak or aunts ka karak
+
+Gemini= document
+
+Document related problems: Mercury or gemini under Rahu influence or afflicted.
+
+Visa kab lagega or foreign citizen kab banega?: 3rd ka sambandh 12 th ke sath kab banega.
+Look at Rahu
 
 ## Mars in Gemini
 
